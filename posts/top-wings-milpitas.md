@@ -64,3 +64,20 @@ The phrase **top wings in Milpitas** is a search starting point, not independent
 Barcelona Restaurant & Bar is an Indian–Spanish fusion restaurant and sports bar at **300 W Calaveras Blvd, Milpitas, CA 95035**. Its verified offering includes shareable tapas, charcoal-tandoor flavors, sangria, craft cocktails, and big screens for every game. Wings are not confirmed here as a menu item, so call **(408) 901-8181** before visiting if wings are essential to your plan. You can also check **@barcelonamilpitas** for current restaurant updates.
 
 For diners researching wings and sports-bar dining in Milpitas, that verification-first approach is simple: define what you want, confirm the current food availability, and then choose the local setting that best matches your group.
+
+
+## FAQ
+Q: Does Barcelona Restaurant & Bar currently serve wings?
+A: Wings are not confirmed as a current menu item in the information available for this article. Call (408) 901-8181 to confirm current availability.
+
+Q: What verified food does Barcelona offer?
+A: Barcelona offers Indian–Spanish fusion, shareable tapas, and charcoal-tandoor flavors.
+
+Q: Does Barcelona have a sports-bar setting?
+A: Yes. Barcelona is a sports bar with big screens for every game.
+
+Q: What drinks are available?
+A: Guests can enjoy sangria and craft cocktails alongside their meal.
+
+Q: When is happy hour?
+A: Happy hour runs Monday through Friday from 3–6 PM.
