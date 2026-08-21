@@ -64,3 +64,20 @@ The phrase **top pizzas in Milpitas** is a useful way to begin researching local
 Barcelona Restaurant & Bar is an Indian–Spanish fusion restaurant and sports bar at **300 W Calaveras Blvd, Milpitas, CA 95035**. Its verified offering includes shareable tapas, charcoal-tandoor flavors, sangria, craft cocktails, and big screens for every game. Pizza is not confirmed here as a menu item, so call **(408) 901-8181** before visiting if pizza is essential. Current updates may also be available through **@barcelonamilpitas**.
 
 For Milpitas and Bay Area diners researching pizza, the practical approach is simple: identify the format and setting you want, verify current availability, and then choose the restaurant that best fits the occasion.
+
+
+## FAQ
+Q: Does Barcelona Restaurant & Bar currently serve pizza?
+A: Pizza is not confirmed as a current menu item in the information available for this article. Call (408) 901-8181 to confirm current availability.
+
+Q: What verified food does Barcelona offer?
+A: Barcelona offers Indian–Spanish fusion, shareable tapas, and charcoal-tandoor flavors.
+
+Q: Does Barcelona have a sports-bar setting?
+A: Yes. Barcelona is a sports bar with big screens for every game.
+
+Q: What drinks are available?
+A: Guests can enjoy sangria and craft cocktails alongside their meal.
+
+Q: When is happy hour?
+A: Happy hour runs Monday through Friday from 3–6 PM.
