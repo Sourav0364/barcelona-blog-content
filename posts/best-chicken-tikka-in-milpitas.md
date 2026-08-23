@@ -81,3 +81,20 @@ Barcelona Restaurant & Bar is located at **300 W Calaveras Blvd, Milpitas, CA 95
 Chicken tikka is not explicitly verified as a current Barcelona menu item. Call **(408) 901-8181** to confirm before visiting if that dish is the purpose of your trip. You can also check the restaurant’s Instagram at **@barcelonamilpitas** for current updates, while confirming menu details directly.
 
 A thoughtful Milpitas food search ends with verified information: decide what you want, compare the experience as well as the dish, and confirm current availability before you go.
+
+
+## FAQ
+Q: Does Barcelona Restaurant & Bar currently serve chicken tikka?
+A: Chicken tikka is not confirmed as a current menu item in the information available for this article. Call (408) 901-8181 to confirm current availability.
+
+Q: What verified food does Barcelona offer?
+A: Barcelona offers Indian–Spanish fusion, shareable tapas, and charcoal-tandoor flavors.
+
+Q: What drinks are available?
+A: Guests can enjoy sangria and craft cocktails alongside their meal.
+
+Q: Does Barcelona have a sports-bar setting?
+A: Yes. Barcelona is a sports bar with big screens for every game.
+
+Q: When is happy hour?
+A: Happy hour runs Monday through Friday from 3–6 PM.
