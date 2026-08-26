@@ -85,3 +85,20 @@ These details make Barcelona a local option for people researching Spanish food 
 Call **(408) 901-8181** before visiting to confirm current menu options and other day-specific details. You can also find the restaurant on Instagram at **@barcelonamilpitas**.
 
 A strong Spanish food search starts with the experience you want, not just a ranking phrase. Compare cuisine style, sharing format, drinks, atmosphere, and timing; then verify the details directly. That approach helps Milpitas and Bay Area diners choose with useful, current information.
+
+
+## FAQ
+Q: Where can I find Spanish food in Milpitas?
+A: Barcelona Restaurant & Bar offers Indian–Spanish fusion and shareable tapas at 300 W Calaveras Blvd, Milpitas, CA 95035. Confirm specific Spanish-influenced dishes directly.
+
+Q: Does Barcelona serve tapas?
+A: Yes. Shareable tapas are part of Barcelona’s verified offering; call (408) 901-8181 to confirm current options.
+
+Q: Is sangria available?
+A: Sangria is part of the restaurant’s verified beverage offering. Confirm current availability and selection before visiting.
+
+Q: Does Barcelona have a sports-bar setting?
+A: Yes. Barcelona is a sports bar with big screens for every game.
+
+Q: When is happy hour?
+A: Happy hour runs Monday through Friday from 3–6 PM.
