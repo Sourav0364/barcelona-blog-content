@@ -96,3 +96,20 @@ The happy-hour schedule does not confirm prices, specials, specific tandoori foo
 When comparing **tandoori food in Milpitas**, look for a clear description of the cooking style, ask about current offerings, and consider the needs of everyone at the table. Barcelona is one local option to investigate if charcoal-tandoor flavors, Indian–Spanish fusion, shareable food, drinks, or sports viewing fit your plans.
 
 Confirm the current menu and availability at **(408) 901-8181** before you go. That simple step keeps your search grounded in current information and helps your group plan a better Milpitas dining experience.
+
+
+## FAQ
+Q: Where can I find tandoori food in Milpitas?
+A: Barcelona Restaurant & Bar is a local option with verified charcoal-tandoor flavors at 300 W Calaveras Blvd. Confirm specific tandoori dishes and current availability by calling (408) 901-8181.
+
+Q: What kind of restaurant is Barcelona?
+A: Barcelona is an Indian–Spanish fusion restaurant and sports bar with shareable tapas, drinks, and big screens for every game.
+
+Q: What drinks are available?
+A: Guests can enjoy sangria and craft cocktails alongside their meal.
+
+Q: When is happy hour?
+A: Happy hour runs Monday through Friday from 3–6 PM.
+
+Q: Can I confirm the current menu before visiting?
+A: Yes. Call (408) 901-8181 to ask about current tandoori dishes, preparation, ingredients, and availability.
