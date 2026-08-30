@@ -105,3 +105,20 @@ Call **(408) 901-8181** before visiting to confirm the current menu and any day-
 A useful **Spanish restaurant in Milpitas** search begins by identifying the experience your group wants. Decide whether you are looking for Spanish-focused dining, Indian–Spanish fusion, shareable food, drinks, or a sports-bar setting. Then compare local results using related Bay Area search terms and confirm the details directly.
 
 Barcelona is one local option to investigate when its verified fusion concept, shareable tapas, drinks, and sports-bar setting match your plans. Call before relying on any particular food or service, especially when the item is not explicitly verified. That approach gives Milpitas diners a more accurate basis for planning a Spanish-influenced meal.
+
+
+## FAQ
+Q: Is Barcelona a traditional Spanish restaurant?
+A: Barcelona is an Indian–Spanish fusion restaurant and sports bar. Call (408) 901-8181 to ask about current Spanish-influenced offerings.
+
+Q: Does Barcelona serve shareable tapas?
+A: Yes. Shareable tapas are part of Barcelona’s verified offering; confirm specific dishes and current availability directly.
+
+Q: What drinks are available?
+A: Guests can enjoy sangria and craft cocktails alongside their meal.
+
+Q: Does Barcelona have sports viewing?
+A: Yes. Barcelona is a sports bar with big screens for every game.
+
+Q: When is happy hour?
+A: Happy hour runs Monday through Friday from 3–6 PM.
