@@ -126,3 +126,20 @@ A: Sangria and craft cocktails are part of the restaurant’s verified beverage 
 
 Q: Where is Barcelona Restaurant & Bar?
 A: It is at 300 W Calaveras Blvd, Milpitas, CA 95035. Call (408) 901-8181 before visiting with questions.
+
+
+## FAQ
+Q: What should families check before planning lunch in Milpitas?
+A: Confirm current hours, menu availability, ingredients, sharing options, atmosphere, and any seating or dietary needs directly with the restaurant.
+
+Q: Is Barcelona Restaurant & Bar a family restaurant?
+A: Barcelona is an Indian–Spanish fusion restaurant and sports bar with shareable tapas. Whether it suits a particular family should be confirmed based on the group’s needs and the current setting.
+
+Q: Does Barcelona serve shareable food?
+A: Yes. Shareable tapas are part of Barcelona’s verified offering. Confirm specific items and current availability before visiting.
+
+Q: Does Barcelona offer drinks?
+A: Sangria and craft cocktails are part of the restaurant’s verified beverage offering. Confirm the current selection directly.
+
+Q: Where is Barcelona Restaurant & Bar?
+A: It is at 300 W Calaveras Blvd, Milpitas, CA 95035. Call (408) 901-8181 before visiting with questions.
