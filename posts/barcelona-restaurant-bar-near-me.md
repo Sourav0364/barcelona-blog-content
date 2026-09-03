@@ -7,7 +7,7 @@ keyword: Barcelona Restaurant & Bar near me
 keywords: Barcelona Restaurant & Bar near me, Barcelona Restaurant & Bar Milpitas, restaurants near Barcelona Restaurant & Bar in Milpitas, cocktail bar Milpitas, Indian Spanish fusion Milpitas, Calaveras Boulevard restaurants Milpitas, Barcelona Restaurant & Bar Instagram
 excerpt: Searching for Barcelona Restaurant & Bar near me? This guide helps local diners identify the Milpitas location and confirm details before visiting.
 cover: /media/interior-bar.jpg
-category: Local Guide
+category: Guides
 readMins: 5
 datePublished: 2026-09-03
 ---
