@@ -7,7 +7,7 @@ keyword: Barcelona Restaurant & Bar hours in Milpitas
 keywords: Barcelona Restaurant & Bar hours in Milpitas, Barcelona Restaurant & Bar open now, Barcelona Restaurant & Bar hours near me, Milpitas restaurant hours, restaurant near Calaveras Boulevard, Barcelona Restaurant & Bar Milpitas, Indian Spanish fusion Milpitas
 excerpt: Looking up Barcelona Restaurant & Bar hours in Milpitas? This practical guide explains how to verify current timing and plan around the confirmed local details.
 cover: /media/interior-bar.jpg
-category: Local Dining
+category: Guides
 readMins: 5
 datePublished: 2026-09-08
 ---
