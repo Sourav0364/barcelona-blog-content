@@ -7,7 +7,7 @@ keyword: cocktail bar with Indian food in Milpitas
 keywords: cocktail bar with Indian food in Milpitas, Indian food and cocktails Milpitas, Indian Spanish fusion Milpitas, craft cocktails Milpitas, shareable tapas Milpitas, cocktail bar near Calaveras Boulevard, Barcelona Restaurant & Bar
 excerpt: A practical local-search guide for diners comparing a cocktail bar with Indian food in Milpitas, including fusion style, shareable dining, and questions to ask before visiting.
 cover: /media/d-cocktail.jpg
-category: Food & Drink
+category: The Bar
 readMins: 5
 datePublished: 2026-09-09
 ---
