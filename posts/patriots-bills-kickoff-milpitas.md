@@ -1,10 +1,10 @@
 ---
 slug: patriots-bills-kickoff-milpitas
-title: "Patriots vs. Bills Today: 10 a.m. Bay Area Kickoff Near Milpitas"
+title: "Patriots vs. Bills Sunday: 10 a.m. Bay Area Kickoff Near Milpitas"
 metaTitle: "Patriots vs Bills Kickoff Time Near Milpitas"
-metaDescription: "Patriots–Bills is scheduled for Sunday at 10 a.m. PT in the Bay Area. Confirm any local viewing and Sunday hours near Milpitas before heading out."
+metaDescription: "Patriots–Bills is scheduled for Sunday, Oct. 4, at 10 a.m. PT in the Bay Area. Confirm local viewing and Sunday hours near Milpitas before heading out."
 keyword: Patriots vs Bills kickoff time near Milpitas
-keywords: Patriots vs Bills 10 AM PT, Patriots Bills Week 4, Buffalo Bills game time Bay Area, New England Patriots near San Jose, NFL game today near Great Mall, Patriots Bills Calaveras Boulevard, where to check Patriots Bills near Milpitas
+keywords: Patriots vs Bills 10 AM PT, Patriots Bills Week 4, Buffalo Bills game time Bay Area, New England Patriots near San Jose, NFL Sunday game near Great Mall, Patriots Bills Calaveras Boulevard, where to check Patriots Bills near Milpitas
 excerpt: "The Patriots visit the Bills on Sunday, October 4, with a 10 a.m. Bay Area kickoff and a reminder to verify local viewing details."
 cover: /media/interior-bar.jpg
 category: Events
